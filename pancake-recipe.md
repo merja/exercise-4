@@ -9,7 +9,7 @@
 
 ## Steps
 
-1. Crack the eggs into a bowl.
+1. Crack the eggs (both whites and yolks, but not the shells) into a bowl.
 2. Whisk.
 3. Slowly add the flour while whisking.
 4. Melt the butter and stir it in.
