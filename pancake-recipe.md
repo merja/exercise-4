@@ -13,5 +13,5 @@
 2. Whisk.
 3. Slowly add the flour while whisking.
 4. Melt the butter and stir it in.
-5. Stir in the milk.
+5. Stir in the milk. Just stir in a little at a time.
 6. Fry the batter in a heated frying-pan.
