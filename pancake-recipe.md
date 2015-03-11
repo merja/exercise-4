@@ -13,5 +13,5 @@
 2. Whisk until the yolks have mixed into the whites.
 3. Slowly add the flour while whisking.
 4. Melt the butter and stir it in.
-5. Stir in the milk, slowly so as not to create clumps.
-6. Fry the batter in a heated frying-pan.
+5. Stir in the milk. Just stir in a little at a time.
+6. Fry the butter in a heated frying-pan.
